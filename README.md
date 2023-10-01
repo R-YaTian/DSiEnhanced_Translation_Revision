@@ -1,1 +1,1 @@
-# DSiEnhanced_Translation_Revision
+# DS(iEnhanced)_Translation_Revision
